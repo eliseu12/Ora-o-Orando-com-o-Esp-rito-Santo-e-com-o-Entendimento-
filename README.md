@@ -1,0 +1,1 @@
+# Ora-o-Orando-com-o-Esp-rito-Santo-e-com-o-Entendimento-
